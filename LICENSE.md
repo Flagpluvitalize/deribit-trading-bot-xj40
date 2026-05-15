@@ -1,4 +1,4 @@
-# 
+# Get the ultimate deribit trading bot with updated Trading Bot for deribit trading bot | risk-management & position-sizing. Featuring risk-management and position-sizing, it's the
 
 
 
