@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Flagpluvitalize.github.io/deribit-trading-bot-xj40/ ) |
  |---------------------|----------------------:|
 
 
